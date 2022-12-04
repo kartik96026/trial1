@@ -1,1 +1,1 @@
- yaar di tootal
+aj meri yaada ki shadi
